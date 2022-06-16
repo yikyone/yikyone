@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @yikyone
 - 👀 I’m interested in .nft..
 - 🌱 I’m currently learning crypto
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on .some nfts..
 - 📫 How to reach me ...
 
 <!---
